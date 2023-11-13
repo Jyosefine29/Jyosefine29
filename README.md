@@ -16,6 +16,14 @@ I thrive in the world of pixels and algorithms, where every click counts. From c
 
 - **📈 Marketing Maestro:** Managing and integrating social media channels? Check. Executing lead generation campaigns on Google Ads? Double-check. I don't just market; I orchestrate success.
 
+- **🔍 Data Detective:** I delve into the nitty-gritty of data, using tools like Google Analytics, to unravel insights that drive informed decision-making. I'm not just about numbers; I'm about deciphering the story they tell.
+
+- **🤖 Tech Trailblazer:** Comfortable navigating the intersection of marketing and technology, I bring a tech-savvy edge to the digital landscape. Whether it's the latest marketing tools or emerging trends, I'm always a step ahead.
+
+- **🌐 Global Navigator:** Having worked on projects with a global footprint, I understand the nuances of crafting campaigns that resonate across diverse cultures and demographics.
+
+- **📊 Analytics Alchemist:** Transforming raw data into actionable strategies is my forte. I don't just collect data; I distill it into gold mines of insights for driving future successes.
+
 ## The Digital Saga
 
 Feel free to explore the digital chapters of my career, where each project is a tale of challenges conquered and strategies that soared.
@@ -25,5 +33,7 @@ Feel free to explore the digital chapters of my career, where each project is a 
 📧 **Email:** pachavane29@gmail.com
 🔗 **LinkedIn:** [Jyotsna Pachavane](https://www.linkedin.com/in/jyotsna-pachvane-86718a191/)
 📱 **Contact:** +91 7208422875
+📷 **Instagram:** [@jyo_pachavane](https://www.instagram.com/jyo_pachavane)
+💼 **Facebook:** [Jyo Pachvane  (Jyo�)](https://www.facebook.com/profile.php?id=100009721362072)
 
 Looking forward to connecting with fellow enthusiasts, marketers, and anyone passionate about the digital realm!
