@@ -10,7 +10,7 @@
 
 ## Work Experience
 
-### ANZEN Technologies Pvt. Ltd (April 2023 - Present)
+### ANZEN Technologies Pvt. Ltd (April 2023 - October 2023)
 - 🎨 Developed engaging graphic designs for social media posts.
 - 🔍 Contributed to SEO efforts, recommending strategies to maintain and improve Google ranking.
 - 🚀 Managed SEO organically, influencing search engine rankings.
