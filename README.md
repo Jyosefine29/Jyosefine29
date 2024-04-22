@@ -31,7 +31,7 @@ Feel free to explore the digital chapters of my career, where each project is a 
 ## Let's Connect!
 
 📧 **Email:** pachavane29@gmail.com
-📱 **Contact:** +91 7208422875
+📱 **Contact:** +91 #######875
 🔗 **LinkedIn:** [Jyotsna Pachavane](https://www.linkedin.com/in/jyotsna-pachvane-86718a191/)
 
 📷 **Instagram:** [@jyo_pachavane](https://www.instagram.com/jyo_pachavane)
